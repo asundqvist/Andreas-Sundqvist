@@ -25,7 +25,7 @@ Jag är **31 år gammal** och bor i **Sundsvall** med min sambo och våra två d
 
 ---
 
-    Kontakta mig på Teams om du vill veta mer!
+    Kontakta mig på [Teams](andreas.sundqvist.java25@edu.edugrade.se) om du vill veta mer!
 
 
 
