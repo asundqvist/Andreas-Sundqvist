@@ -1,5 +1,6 @@
 # Andreas Sundqvist
-### Lite kort om mig:
+### Lite kort om mig:  
+
 
 ##### Jag är **31 år** och bor i **Sundsvall** med min sambo och våra två döttrar. Jag har i *större delen av mitt liv* arbetat på en bilskadeverkstad där jag har varit reservdel- och lagersansvarig. Kände nu att det var dags för en **ny utmaning** och det var därför som jag hamnade här!
 
